@@ -1,1 +1,0 @@
-# premium.aldis.id.lv
